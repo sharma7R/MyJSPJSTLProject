@@ -100,3 +100,7 @@ Through this project, I gained practical experience in:
 **Sharma R**
 
 GitHub: **sharma7r**
+<img width="629" height="311" alt="Screenshot 2026-09-22 134049" src="https://github.com/user-attachments/assets/702f27d2-22d3-4759-8502-04adbc6a2bfa" />
+<img width="624" height="311" alt="Screenshot 2026-09-22 134114" src="https://github.com/user-attachments/assets/e32a5b86-7c03-4181-9acd-6cdc40e147b8" />
+
+
